@@ -24,27 +24,6 @@ Actualmente estoy buscando oportunidades de prácticas o trabajo en el campo del
 🌟 ¡Gracias por Visitar!
 
 
-👋 ¡Hola! Soy [Tu Nombre]
-
-👨‍🎓 Estudiante de Análisis de Negocios
-📊 Apasionado por el Big Data
-🤖 Entusiasta del Machine Learning
-🚀 Sobre Mí
-
-¡Hola! Soy [Tu Nombre], un estudiante de análisis de negocios con una gran pasión por el Big Data y el Machine Learning. Estoy aquí para aprender, colaborar y crecer en el emocionante mundo de la ciencia de datos.
-💼 Objetivos Profesionales
-
-Actualmente estoy buscando oportunidades de prácticas o trabajo en el campo del análisis de datos. Me encantaría contribuir con mi entusiasmo y mis habilidades para ayudar a resolver problemas y generar ideas innovadoras.
-📫 Contáctame
-
-¡Estoy emocionado por conectar contigo! Si quieres discutir oportunidades de colaboración o simplemente charlar sobre el fascinante mundo del análisis de datos, no dudes en contactarme:
-
-📧 Correo Electrónico: tu@email.com
-🌐 LinkedIn: Tu Nombre
-🐦 Twitter: @tuusuario
-🌟 ¡Gracias por Visitar!
-
-¡Gracias por pasar por aquí! Estoy emocionado por lo que el futuro tiene reservado en el mundo del análisis de datos y espero poder conectarme contigo pronto. ¡No dudes en explorar mis proyectos y contribuciones!
 
 
 👋 Hello! I'm Pablo Martín Parera
