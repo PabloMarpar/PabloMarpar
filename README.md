@@ -24,14 +24,7 @@ Actualmente estoy buscando oportunidades de prácticas o trabajo en el campo del
 🌟 ¡Gracias por Visitar!
 
 
-
-
-
-
-
-
-
-
+------------------------------------------------------------------------------------------------------------------------------------------------
 
 
 👋 Hello! I'm Pablo Martín Parera
