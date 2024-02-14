@@ -26,6 +26,14 @@ Actualmente estoy buscando oportunidades de prácticas o trabajo en el campo del
 
 
 
+
+
+
+
+
+
+
+
 👋 Hello! I'm Pablo Martín Parera
 
 👨‍🎓 Business Analytics Student
